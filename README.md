@@ -1,2 +1,1 @@
-All artworks is © @korin_kreat at Instagram. https://www.instagram.com/korin_kreat/ 
-Reproduction in any form is prohibited
+Korin Kreat is a group of collection of Anime Art by Korin. Anime art defies most tradional art theories and in each Korin Kreat editions are characters you wished existed. Currently planned editions to mint are "Pretty Bois" and "Badass Gurls".
